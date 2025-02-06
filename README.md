@@ -14,4 +14,4 @@
 - LinkedIn: https://www.linkedin.com/in/altay_abzhami
 
 ## Суретім:
-https://avatars.mds.yandex.net/i?id=25c0805a961da52d395cd637bd8c99ee_l-5259283-images-thumbs&n=13 
+https://static.kinoafisha.info/k/movie_shots/1920x1080/upload/person/photos/4776745/ddcfcb3d096028b6b0018564082459ee.jpg
